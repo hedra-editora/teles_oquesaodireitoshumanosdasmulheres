@@ -9,7 +9,7 @@ direitos humanos, que nos dá uma dimensão ampla e realista do tanto
 que temos de caminhar na trilha pela paz e justiça.*
 
 *Agradeço a todas as pessoas com as quais posso compartilhar
-*o desejo e a esperança de ver a justiça e a dignidade neste mundo.*
+o desejo e a esperança de ver a justiça e a dignidade neste mundo.*
 
 *Em especial ao César, Criméia, Janaína, Edson Luís, ao Joca, às
 mulheres da União de Mulheres de São Paulo e às Promotoras Legais
